@@ -1,1 +1,1 @@
-Dobré ráno. Jmenuji se Michael a zasloužil bych si známku dva. 
+Dobré ráno. Jmenuji se Michael a zasloužil bych si známku jedna. 
